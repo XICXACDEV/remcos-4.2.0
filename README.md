@@ -5,4 +5,4 @@
 If You Want Password <a href="https://discord.gg/5Fy9x5nasB">Join Discord</a> Now!!
 
 # Previve Zone
-![App Screenshot](https://zennashop.com/wp-content/uploads/2022/10/cooki.png](https://tse4.mm.bing.net/th?id=OIP.VTvLiuUL1czajfXupHFSCQHaEK&pid=Api&P=0)
+![App Screenshot](https://media.discordapp.net/attachments/1044606550154690650/1059495885656047727/th.jpg)
